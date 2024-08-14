@@ -14,7 +14,7 @@
 
 📫 How to reach me: 
 * [LinkedIn Profile](https://www.linkedin.com/in/jithin-thankachan-a344b1101/)
-* [Email Address](jithinthankachan2600@gmail.com)
+* [Twitter](https://x.com/jithin2600)
 
 ⚡ Fun fact:I'm all about hard work and empathy,but I also wouldn't say no to a little cosmic boost!. 
 
